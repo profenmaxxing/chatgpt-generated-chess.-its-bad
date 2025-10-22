@@ -1,3 +1,3 @@
-# chatgpt-generated-chess.-its-bad
+# profenmaxxing.github.io
 chat gpt generated chess. it sucks
 
